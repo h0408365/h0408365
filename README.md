@@ -1,4 +1,4 @@
-### Hi I'm Harold Tran 👋 | Wakatime
+### Hi I'm Harold Tran 👋 | 
 
 
 
